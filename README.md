@@ -7,15 +7,15 @@
 
 **:man: 已经助力500W+用户加速全球网络！**
 
-**:arrow_double_down: [iOS 版本链接](http://share.xkvpn.fyi/xgvpn.html?t=t3gu23za)**
+**:arrow_double_down: [大陆IOS版本下载链接入口](http://share.xkvpn.fyi/xgvpn.html?t=t3gu23za)**
 
-**:globe_with_meridians: [访问官方网站](http://share.xkvpn.fyi/xgvpn.html?t=8u5v7led)** 
+**:globe_with_meridians: [官方网站链接](http://share.xkvpn.fyi/xgvpn.html?t=8u5v7led)** 
 
-- - - -
+**:arrow_double_down: [海外IOS版本链接](https://apps.apple.com/hk/app/%E6%98%9F%E7%90%83%E5%8A%A0%E9%80%9F%E5%99%A8/id6462817184)** 
 
-#### 点击下方蓝字，下载安卓加速器
+**:arrow_double_down: [谷歌商店下载链接](https://play.google.com/store/apps/details?id=com.vp.xingkongnew)** 
 
-#### :arrow_double_down: [Android 版本.APK](http://share.xkvpn.fyi/xgvpn.html?t=u5q6ok55)
+**:arrow_double_down: [安卓下载链接]([http://share.xkvpn.fyi/xgvpn.html?t=8u5v7led](http://share.xkvpn.fyi/xgvpn.html?t=u5q6ok55))** 
 
 ###
 ---
