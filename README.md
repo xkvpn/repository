@@ -15,7 +15,7 @@
 
 **:arrow_double_down: [谷歌商店下载链接](https://play.google.com/store/apps/details?id=com.vp.xingkongnew)** 
 
-**:arrow_double_down: [安卓下载链接](http://share.xkvpn.fyi/xgvpn.html?t=8u5v7led)** 
+**:arrow_double_down: [安卓下载链接](http://share.xkvpn.fyi/xgvpn.html?t=u5q6ok55)** 
 
 ###
 ---
